@@ -1,4 +1,4 @@
-## Giuliana Tamie
+## Giuliana Tamie Sumida
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/giuliana-tamie-sumida-50bb11215)
 
 ### Olá! Eu sou a Giuliana.
